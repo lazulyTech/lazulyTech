@@ -1,4 +1,4 @@
-# **:wave: Hi I'm Lazuly!**
+# **👋 Hi I'm Lazuly!**
 
 I'm a Student of The University of Electro-Communication
 
